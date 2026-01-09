@@ -7,8 +7,8 @@
 )
 
   </div>
-<p align="center"><img src="https://i.pinimg.com/originals/23/d0/61/23d061c53a6a03d8f98e070f31356982.gif">
+<p align="center"><img src="https://64.media.tumblr.com/874ab3b608446a8b01daa73a0bacf9c9/tumblr_oyvp2uM5Ec1srt81jo2_540.gif">
 <br> 
 
   
-[_sign ata_](https://fyolai.atabook.org)⠀⠀⠀⠀[_rentry_](https://rentry.co/njiro)
+[_sign ata_](https://fyolai.atabook.org)⠀⠀⠀⠀[_<3_](https://FYODORISLIFEANDALIVEEEEE.com)
